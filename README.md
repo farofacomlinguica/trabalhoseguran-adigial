@@ -1,0 +1,1 @@
+# trabalhoseguran-adigial
